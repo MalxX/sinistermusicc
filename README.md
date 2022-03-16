@@ -18,4 +18,4 @@ Please utilize this repository as much as you like and, if you want, use the Dis
 
 Thanks for being here, and happy listening!
 
--Callum aka [sinister](https://twitter.com/smnsinistertoit)
+-Callum a.k.a [sinister.](https://twitter.com/smnsinistertoit)
