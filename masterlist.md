@@ -8,3 +8,7 @@ https://twitter.com/sinistermusicc/status/1503904531054268416?s=20&t=42AgeZexYdC
 [Arkhaiomelisidonophunikheratos](https://rateyourmusic.com/release/album/satanicpornocultshop/arkhaiomelisidonophunikheratos) - [@landoneko](https://twitter.com/landoneko)
 
 [you're living all over me](https://rateyourmusic.com/release/album/dinosaur/youre-living-all-over-me/) - [@sakiv6601](https://twitter.com/sakiv6601)
+
+[grown backwards](https://rateyourmusic.com/artist/david-byrne) - [@grownbackward](https://twitter.com/grownbackward)
+
+[the color blu(e)](https://rateyourmusic.com/release/album/blu/the-color-blu_e/) - [@honesthht](https://twitter.com/Honesthht)
