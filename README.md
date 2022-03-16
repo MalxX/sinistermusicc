@@ -11,3 +11,11 @@ This is a place for me to store code that our music club bot uses, polls + threa
 Album submissions are to be sumitted underneath the "pinned" section on the [sinistermusicc twitter account.](https://twitter.com/sinistermusicc) There will be a weekly thread for this. **Please only submit one album per person to ensure everyone gets an equal chance to have their album drawn.**
 
 Once albums have been submitted (again, one per person on a weekly basis), they will be promptly uploaded to the "masterlist" here on Github. The masterlist will have the album submissions organized via the week they were submitted. **Any albums that are older than two weeks will be removed to keep the list fresh. You may resubmit your album again if it's still there and wasn't chosen previously.** Albums listed as *active* (~~albums will look like this if inactive~~) will be chosen for the weekly draw at random using a randomizer wheel.
+
+That's pretty much all the core info for now! Again this doc will be updated (as shown through the commits) as information gets updated, fixed, or polished. Major updates will be announced through the twitter account so you don't miss anything!
+
+Please utilize this repository as much as you like and, if you want, use the Discussion feature! It can be utilized to post longer reviews, thoughts, and opinions which you can then link to twitter if you feel so inclined.
+
+Thanks for being here, and happy listening!
+
+-Callum aka [sinister](https://twitter.com/smnsinistertoit)
