@@ -11,7 +11,7 @@ https://twitter.com/sinistermusicc/status/1503904531054268416?s=20&t=42AgeZexYdC
 
 [grown backwards](https://rateyourmusic.com/artist/david-byrne) - [@grownbackward](https://twitter.com/grownbackward)
 
-~~[the color blu(e)](https://rateyourmusic.com/release/album/blu/the-color-blu_e/) - [@honesthht](https://twitter.com/Honesthht)
+~~[the color blu(e)](https://rateyourmusic.com/release/album/blu/the-color-blu_e/) - [@honesthht](https://twitter.com/Honesthht)~~
 
 [i want to be there](https://rateyourmusic.com/release/album/sadness/i-want-to-be-there/) - [@simpunion](https://twitter.com/simpunion)
 
