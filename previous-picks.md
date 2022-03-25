@@ -72,10 +72,10 @@
 [The Idiot - Iggy Pop](https://rateyourmusic.com/release/album/iggy-pop/the-idiot/) ([spotify](https://open.spotify.com/album/78UazygH85UAB0qXqQpzg6?si=KT7A0xICT1ive6QlVeoSTA))
 
 #### Week 24:
-[LP! - JPEGMAFIA](https://rateyourmusic.com/release/album/jpegmafia/lp/) ([spotify](https://open.spotify.com/album/4inXqcdjG79gV4m2mU8dQh?si=pd4FSm_oTguPyTWeEA7QkQ))
+[LP! - JPEGMAFIA](https://rateyourmusic.com/release/album/jpegmafia/lp/) ([spotify](https://open.spotify.com/album/4inXqcdjG79gV4m2mU8dQh?si=pd4FSm_oTguPyTWeEA7QkQ)) ([discussion thread](https://twitter.com/sinistermusicc/status/1500464965332967430))
 
 #### Week 25:
-[Harmony Hacker - Sevish](https://rateyourmusic.com/release/album/sevish/harmony-hacker/) ([spotify](https://open.spotify.com/album/61NYclP8BapCT54gttN4Pi?si=uZakjLSASKi0IRmEmJbmhw))
+[Harmony Hacker - Sevish](https://rateyourmusic.com/release/album/sevish/harmony-hacker/) ([spotify](https://open.spotify.com/album/61NYclP8BapCT54gttN4Pi?si=uZakjLSASKi0IRmEmJbmhw)) ([discussion thread](https://twitter.com/sinistermusicc/status/1502977473000189953))
 
 #### Week 26:
 [The Color Blu(e) - Blu](https://rateyourmusic.com/release/album/blu/the-color-blu_e/) ([spotify](https://open.spotify.com/album/7bgH0nBBbJ3o89uNoD4uCK?si=jqvaz1uzSCOtcfXDoubYrw))
