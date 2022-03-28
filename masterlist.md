@@ -31,3 +31,4 @@
 
 [forgetmenot](https://rateyourmusic.com/release/ep/five-pebbles/forgetmenot/) - [@simpunion](https://twitter.com/simpunion)
 
+[avantdale bowling club](https://rateyourmusic.com/release/album/avantdale-bowling-club/avantdale-bowling-club/)(*resubmit*) - [@ultralite_fish](https://twitter.com/ultralite_fish)
