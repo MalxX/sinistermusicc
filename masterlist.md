@@ -23,7 +23,7 @@
 
 ## [3/26/22](https://twitter.com/sinistermusicc/status/1507799004356263958)
 
-[revolutionary pekinese opera ver 1.28](https://rateyourmusic.com/release/album/ground-zero/revolutionary-pekinese-opera-ver-1_28-1/) - [@zolriss](https://twitter.com/zolriss)
+~~[revolutionary pekinese opera ver 1.28](https://rateyourmusic.com/release/album/ground-zero/revolutionary-pekinese-opera-ver-1_28-1/) - [@zolriss](https://twitter.com/zolriss)~~
 
 [dopethrone](https://rateyourmusic.com/release/album/electric-wizard/dopethrone/) - [@sakiv6601](https://twitter.com/sakiv6601)
 
