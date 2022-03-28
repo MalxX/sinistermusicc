@@ -21,3 +21,13 @@ https://twitter.com/sinistermusicc/status/1503904531054268416?s=20&t=42AgeZexYdC
 
 [tonight's the night](https://rateyourmusic.com/release/album/neil-young/tonights-the-night/) - [@StrongAndDeep](https://twitter.com/StrongAndDeep)
 
+[3/26/22](https://twitter.com/sinistermusicc/status/1507799004356263958)
+
+[revolutionary pekinese opera ver 1.28](https://rateyourmusic.com/release/album/ground-zero/revolutionary-pekinese-opera-ver-1_28-1/) - [@zolriss](https://twitter.com/zolriss)
+
+[dopethrone](https://rateyourmusic.com/release/album/electric-wizard/dopethrone/) - [@sakiv6601](https://twitter.com/sakiv6601)
+
+[October Rust](https://rateyourmusic.com/release/album/type-o-negative/october-rust/) - [@RGBweeb](https://twitter.com/RGBweeb)
+
+[forgetmenot](https://rateyourmusic.com/release/ep/five-pebbles/forgetmenot/) - [@simpunion](https://twitter.com/simpunion)
+
