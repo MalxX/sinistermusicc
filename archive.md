@@ -1,6 +1,6 @@
 # All Selected Picks ([also available on rate your music](https://rateyourmusic.com/list/tortillahater/sin-music-club-selected-picks/))
 
-![](https://github.com/MalxX/sinistermusicc/blob/main/imagesAndResources/album-picks.png)
+![](https://github.com/MalxX/sinistermusicc/blob/main/imagesAndResources/album-picks-2.png)
 
 #### Week 1:
 [The Pavilion of Dreams - Harold Budd](https://rateyourmusic.com/release/album/harold-budd/the-pavilion-of-dreams/) ([spotify](https://open.spotify.com/album/0hWjBUtA4eoFsyh6lygVRN?si=LO8nRycfQY-qRKo0nVB2PA))
