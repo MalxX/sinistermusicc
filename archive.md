@@ -80,5 +80,6 @@
 #### Week 26:
 [The Color Blu(e) - Blu](https://rateyourmusic.com/release/album/blu/the-color-blu_e/) ([spotify](https://open.spotify.com/album/7bgH0nBBbJ3o89uNoD4uCK?si=jqvaz1uzSCOtcfXDoubYrw)) ([discussion thread](https://twitter.com/sinistermusicc/status/1507554598021697543))
 
-#### Week 26:
+#### Week 27:
 [革命京劇 (Revolutionary Pekinese Opera) - Ground-Zero](https://rateyourmusic.com/release/album/ground-zero/%E9%9D%A9%E5%91%BD%E4%BA%AC%E5%8A%87-revolutionary-pekinese-opera-ver_1_28/)
+
