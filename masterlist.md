@@ -34,3 +34,5 @@
 ~~[avantdale bowling club](https://rateyourmusic.com/release/album/avantdale-bowling-club/avantdale-bowling-club/)(*resubmit*) - [@ultralite_fish](https://twitter.com/ultralite_fish)~~
 
 ## [(4/2/22)](https://twitter.com/sinistermusicc/status/1510410243456614400?s=20&t=XmhAHrazxQLyEBMWXZuHQQ)
+
+[Tell Me About the Long Dark Path Home](https://rateyourmusic.com/release/album/the-newfound-interest-in-connecticut/tell-me-about-the-long-dark-path-home/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit?s=20&t=fnbwV-E_L6Q378JcIHAtzQ)
