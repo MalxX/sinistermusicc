@@ -35,6 +35,6 @@
 
 ## [(4/2/22)](https://twitter.com/sinistermusicc/status/1510410243456614400?s=20&t=XmhAHrazxQLyEBMWXZuHQQ)
 
-[Tell Me About the Long Dark Path Home](https://rateyourmusic.com/release/album/the-newfound-interest-in-connecticut/tell-me-about-the-long-dark-path-home/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit?s=20&t=fnbwV-E_L6Q378JcIHAtzQ)
+~~*[Tell Me About the Long Dark Path Home](https://rateyourmusic.com/release/album/the-newfound-interest-in-connecticut/tell-me-about-the-long-dark-path-home/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit?s=20&t=fnbwV-E_L6Q378JcIHAtzQ)*~~
 
 [the köln concert](https://rateyourmusic.com/release/album/keith-jarrett/the-koln-concert/) - [@sakiv6601](https://twitter.com/sakiv6601)
