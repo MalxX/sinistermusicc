@@ -25,11 +25,11 @@
 
 *~~[revolutionary pekinese opera ver 1.28](https://rateyourmusic.com/release/album/ground-zero/revolutionary-pekinese-opera-ver-1_28-1/) - [@zolriss](https://twitter.com/zolriss)~~*
 
-[dopethrone](https://rateyourmusic.com/release/album/electric-wizard/dopethrone/) - [@sakiv6601](https://twitter.com/sakiv6601)
+~~[dopethrone](https://rateyourmusic.com/release/album/electric-wizard/dopethrone/) - [@sakiv6601](https://twitter.com/sakiv6601)~~
 
-[October Rust](https://rateyourmusic.com/release/album/type-o-negative/october-rust/) - [@RGBweeb](https://twitter.com/RGBweeb)
+~~[October Rust](https://rateyourmusic.com/release/album/type-o-negative/october-rust/) - [@RGBweeb](https://twitter.com/RGBweeb)~~
 
-[forgetmenot](https://rateyourmusic.com/release/ep/five-pebbles/forgetmenot/) - [@simpunion](https://twitter.com/simpunion)
+~~[forgetmenot](https://rateyourmusic.com/release/ep/five-pebbles/forgetmenot/) - [@simpunion](https://twitter.com/simpunion)~~
 
 ~~[avantdale bowling club](https://rateyourmusic.com/release/album/avantdale-bowling-club/avantdale-bowling-club/)(*resubmit*) - [@ultralite_fish](https://twitter.com/ultralite_fish)~~
 
