@@ -83,3 +83,5 @@
 #### Week 27:
 [革命京劇 (Revolutionary Pekinese Opera) - Ground-Zero](https://rateyourmusic.com/release/album/ground-zero/%E9%9D%A9%E5%91%BD%E4%BA%AC%E5%8A%87-revolutionary-pekinese-opera-ver_1_28/) ([discussion thread](https://twitter.com/sinistermusicc/status/1510032055299629058))
 
+#### Week 28:
+[Tell Me About the Long Dark Path Home - Newfound Interest in Connecticut](https://rateyourmusic.com/release/album/the-newfound-interest-in-connecticut/tell-me-about-the-long-dark-path-home/)
