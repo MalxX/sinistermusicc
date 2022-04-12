@@ -86,7 +86,7 @@
 #### Week 28:
 [Tell Me About the Long Dark Path Home - Newfound Interest in Connecticut](https://rateyourmusic.com/release/album/the-newfound-interest-in-connecticut/tell-me-about-the-long-dark-path-home/) ([spotify](https://open.spotify.com/album/6KrJF9D46M88UeZGZaoU2E?si=M-XMAMQRTpKeGy1eCIrDJA)) ([discussion thread](https://twitter.com/sinistermusicc/status/1512896757738450947))
 
-#### Week 28:
+#### Week 29:
 [Nobody's Home - Bakar](https://rateyourmusic.com/release/album/bakar/nobodys-home/) ([spotify](https://open.spotify.com/album/231jpal5NKt2c1QFN1D6AZ?si=qAYdGztyRW2N4P3RoE6UBA)) ([discussion thread](TBA))
 
 
