@@ -47,8 +47,18 @@
 
 **Albums requested:**
 
-*~~[Bakar - Nobody’s Home*](https://rateyourmusic.com/release/album/bakar/nobodys-home/) - [@UhMeeNay](https://twitter.com/UhMeeNay)~~
+*~~[Bakar - Nobody’s Home*](https://rateyourmusic.com/release/album/bakar/nobodys-home/) - [@UhMeeNay](https://twitter.com/UhMeeNay)~~*
 
 [sadness - leave*](https://rateyourmusic.com/release/album/sadness/leave/) - [@simpunion](https://twitter.com/simpunion)
 
 [Hella - Hold Your Horse Is*](https://rateyourmusic.com/release/album/hella/hold-your-horse-is/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)
+
+## [(4/16/22)](https://twitter.com/sinistermusicc/status/1515530649951735808)
+
+[12 Rods - Split Personalities](https://rateyourmusic.com/release/album/12-rods/split-personalities/) - [@simpunion](https://twitter.com/simpunion)
+
+[Sonic Youth - Sister](https://rateyourmusic.com/release/album/sonic-youth/sister/) - [@sakiv6601](https://twitter.com/sakiv6601)
+
+[Prince - Purple Rain](https://rateyourmusic.com/release/album/prince-and-the-revolution/purple-rain/) - [@puffin_captain](https://twitter.com/puffin_captain)
+
+[Billy Woods - Aethiopes](https://rateyourmusic.com/release/album/billy-woods/aethiopes/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)
