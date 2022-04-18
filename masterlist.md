@@ -41,13 +41,13 @@
 
 ~~*[Tell Me About the Long Dark Path Home](https://rateyourmusic.com/release/album/the-newfound-interest-in-connecticut/tell-me-about-the-long-dark-path-home/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit?s=20&t=fnbwV-E_L6Q378JcIHAtzQ)*~~
 
-[the köln concert](https://rateyourmusic.com/release/album/keith-jarrett/the-koln-concert/) - [@sakiv6601](https://twitter.com/sakiv6601)
+~~[the köln concert](https://rateyourmusic.com/release/album/keith-jarrett/the-koln-concert/) - [@sakiv6601](https://twitter.com/sakiv6601)
 
 ## [(4/9/22)](https://twitter.com/sinistermusicc/status/1512897419045969931)
 
 **Albums requested:**
 
-[Bakar - Nobody’s Home*](https://rateyourmusic.com/release/album/bakar/nobodys-home/) - [@UhMeeNay](https://twitter.com/UhMeeNay)
+*~~[Bakar - Nobody’s Home*](https://rateyourmusic.com/release/album/bakar/nobodys-home/) - [@UhMeeNay](https://twitter.com/UhMeeNay)~~
 
 [sadness - leave*](https://rateyourmusic.com/release/album/sadness/leave/) - [@simpunion](https://twitter.com/simpunion)
 
