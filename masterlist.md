@@ -51,7 +51,7 @@
 
 *~~[sadness - leave*](https://rateyourmusic.com/release/album/sadness/leave/) - [@simpunion](https://twitter.com/simpunion)~~*
 
-[Hella - Hold Your Horse Is*](https://rateyourmusic.com/release/album/hella/hold-your-horse-is/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)
+*~~[Hella - Hold Your Horse Is*](https://rateyourmusic.com/release/album/hella/hold-your-horse-is/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)~~*
 
 ## [(4/16/22)](https://twitter.com/sinistermusicc/status/1515530649951735808)
 
