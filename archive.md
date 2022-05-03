@@ -90,6 +90,9 @@
 [Nobody's Home - Bakar](https://rateyourmusic.com/release/album/bakar/nobodys-home/) ([spotify](https://open.spotify.com/album/231jpal5NKt2c1QFN1D6AZ?si=qAYdGztyRW2N4P3RoE6UBA)) ([discussion thread](https://twitter.com/sinistermusicc/status/1515170055683809289))
 
 #### Week 29:
-[Leave - Sadness](https://rateyourmusic.com/release/album/sadness/leave/) ([spotify](https://open.spotify.com/album/1URtY8a2RjC9UWPjqmfbjN?si=H8h8KlGxTvya34jRBVWw-g)) ([discussion thread](TBA))
+[Leave - Sadness](https://rateyourmusic.com/release/album/sadness/leave/) ([spotify](https://open.spotify.com/album/1URtY8a2RjC9UWPjqmfbjN?si=H8h8KlGxTvya34jRBVWw-g)) ([discussion thread](https://twitter.com/sinistermusicc/status/1520240444696776706))
+
+#### Week 29:
+[Kiss My Super Bowl Ring - The Garden](https://rateyourmusic.com/release/album/the-garden/kiss-my-super-bowl-ring/) ([spotify](https://open.spotify.com/album/5JRDThBQfispLDYGCF4JuX?si=2e_QnbAxT5unzsLFFk6-PA)) ([discussion thread](TBA))
 
 
