@@ -1,5 +1,5 @@
 # Here's a list of the albums that are in the running for this week's listen! This thread will be updated on a weekly basis (of course)!
-## [(3/15/22)](https://twitter.com/sinistermusicc/status/1503904531054268416?s=20&t=42AgeZexYdC5sKRR2X-dKA)
+## [(03/15/22)](https://twitter.com/sinistermusicc/status/1503904531054268416?s=20&t=42AgeZexYdC5sKRR2X-dKA)
 
 **Albums requested:**
 
@@ -21,7 +21,7 @@
 
 ~~[tonight's the night](https://rateyourmusic.com/release/album/neil-young/tonights-the-night/) - [@StrongAndDeep](https://twitter.com/StrongAndDeep)~~
 
-## [(3/26/22)](https://twitter.com/sinistermusicc/status/1507799004356263958)
+## [(03/26/22)](https://twitter.com/sinistermusicc/status/1507799004356263958)
 
 **Albums requested:**
 
@@ -35,7 +35,7 @@
 
 ~~[avantdale bowling club](https://rateyourmusic.com/release/album/avantdale-bowling-club/avantdale-bowling-club/)(*resubmit*) - [@ultralite_fish](https://twitter.com/ultralite_fish)~~
 
-## [(4/2/22)](https://twitter.com/sinistermusicc/status/1510410243456614400?s=20&t=XmhAHrazxQLyEBMWXZuHQQ)
+## [(04/02/22)](https://twitter.com/sinistermusicc/status/1510410243456614400?s=20&t=XmhAHrazxQLyEBMWXZuHQQ)
 
 **Albums requested:**
 
@@ -43,7 +43,7 @@
 
 ~~[the köln concert](https://rateyourmusic.com/release/album/keith-jarrett/the-koln-concert/) - [@sakiv6601](https://twitter.com/sakiv6601)~~
 
-## [(4/9/22)](https://twitter.com/sinistermusicc/status/1512897419045969931)
+## [04/09/22)](https://twitter.com/sinistermusicc/status/1512897419045969931)
 
 **Albums requested:**
 
@@ -53,7 +53,7 @@
 
 ~~[Hella - Hold Your Horse Is*](https://rateyourmusic.com/release/album/hella/hold-your-horse-is/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)~~
 
-## [(4/16/22)](https://twitter.com/sinistermusicc/status/1515530649951735808)
+## [(04/16/22)](https://twitter.com/sinistermusicc/status/1515530649951735808)
 
 **Albums requested:**
 
