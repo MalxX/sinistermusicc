@@ -69,15 +69,15 @@
 
 **Albums requested:**
 
-[Simon and Garfunkel - Bridge over Troubled Water](https://rateyourmusic.com/release/album/simon-and-garfunkel/bridge-over-troubled-water/) - [ultralite_fish](https://twitter.com/ultralite_fish)
+~~*[Simon and Garfunkel - Bridge over Troubled Water](https://rateyourmusic.com/release/album/simon-and-garfunkel/bridge-over-troubled-water/) - [ultralite_fish](https://twitter.com/ultralite_fish)*~~
 
-[Kiss My Superbowl Ring - The Garden](https://rateyourmusic.com/release/album/the-garden/kiss-my-super-bowl-ring-1/) - [@N0DAT4V2](https://twitter.com/N0DAT4V2)
+~~[Kiss My Superbowl Ring - The Garden](https://rateyourmusic.com/release/album/the-garden/kiss-my-super-bowl-ring-1/) - [@N0DAT4V2](https://twitter.com/N0DAT4V2)~~
 
-[Slanted and Enchanted - Pavement](https://rateyourmusic.com/release/album/pavement/slanted-and-enchanted/) - [@sakiv6601](https://twitter.com/sakiv6601)
+~~[Slanted and Enchanted - Pavement](https://rateyourmusic.com/release/album/pavement/slanted-and-enchanted/) - [@sakiv6601](https://twitter.com/sakiv6601)~~
 
-[Foreign Exchange - Rx Papi](https://rateyourmusic.com/release/album/rx-papi-gud/foreign-exchange/) - [@simpunion](https://twitter.com/simpunion)
+~~[Foreign Exchange - Rx Papi](https://rateyourmusic.com/release/album/rx-papi-gud/foreign-exchange/) - [@simpunion](https://twitter.com/simpunion)~~
 
-[Concert by The Sea (LIVE) - Errol Garner](https://rateyourmusic.com/release/album/erroll-garner/concert-by-the-sea/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)
+~~[Concert by The Sea (LIVE) - Errol Garner](https://rateyourmusic.com/release/album/erroll-garner/concert-by-the-sea/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)~~
 
 ## [(05/07/22)](https://twitter.com/sinistermusicc/status/1523131439746744320)
 
