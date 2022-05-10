@@ -83,7 +83,7 @@
 
 **Albums requested:**
 
-[Bocanada - Gustavo Cerati](https://rateyourmusic.com/release/album/gustavo-cerati/bocanada/) - [@simpunion]((https://twitter.com/simpunion)
+[Bocanada - Gustavo Cerati](https://rateyourmusic.com/release/album/gustavo-cerati/bocanada/) - [@simpunion](https://twitter.com/simpunion)
 
 [Crooked Rain, Crooked Rain - Pavement](https://rateyourmusic.com/release/album/pavement/crooked_rain__crooked_rain/) - [@sakiv6601](https://twitter.com/sakiv6601)
 
