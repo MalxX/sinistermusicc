@@ -89,11 +89,11 @@
 #### Week 29:
 [Nobody's Home - Bakar](https://rateyourmusic.com/release/album/bakar/nobodys-home/) ([spotify](https://open.spotify.com/album/231jpal5NKt2c1QFN1D6AZ?si=qAYdGztyRW2N4P3RoE6UBA)) ([discussion thread](https://twitter.com/sinistermusicc/status/1515170055683809289))
 
-#### Week 29:
+#### Week 30:
 [Leave - Sadness](https://rateyourmusic.com/release/album/sadness/leave/) ([spotify](https://open.spotify.com/album/1URtY8a2RjC9UWPjqmfbjN?si=H8h8KlGxTvya34jRBVWw-g)) ([discussion thread](https://twitter.com/sinistermusicc/status/1520240444696776706))
 
-#### Week 30:
+#### Week 31:
 [Kiss My Super Bowl Ring - The Garden](https://rateyourmusic.com/release/album/the-garden/kiss-my-super-bowl-ring/) ([spotify](https://open.spotify.com/album/5JRDThBQfispLDYGCF4JuX?si=2e_QnbAxT5unzsLFFk6-PA)) ([discussion thread](https://twitter.com/sinistermusicc/status/1522968794800570371))
 
-#### Week 31:
+#### Week 32:
 [Bridge Over Troubled Water - Simon and Garfunkel](https://rateyourmusic.com/release/album/simon-and-garfunkel/bridge-over-troubled-water/) ([spotify](https://open.spotify.com/album/0JwHz5SSvpYWuuCNbtYZoV?si=3z2x-eteSo2IG7wfCqJBbA)) ([discussion thread](TBA))
