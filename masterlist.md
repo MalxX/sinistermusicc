@@ -78,3 +78,11 @@
 [Foreign Exchange - Rx Papi](https://rateyourmusic.com/release/album/rx-papi-gud/foreign-exchange/) - [@simpunion](https://twitter.com/simpunion)
 
 [Concert by The Sea (LIVE) - Errol Garner](https://rateyourmusic.com/release/album/erroll-garner/concert-by-the-sea/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)
+
+## [(05/09/22)](https://twitter.com/sinistermusicc/status/1523131439746744320)
+
+[Bocanada - Gustavo Cerati](https://rateyourmusic.com/release/album/gustavo-cerati/bocanada/) - [@simpunion]((https://twitter.com/simpunion)
+
+[Crooked Rain, Crooked Rain - Pavement](https://rateyourmusic.com/release/album/pavement/crooked_rain__crooked_rain/) - [@sakiv6601](https://twitter.com/sakiv6601)
+
+[(S/T) - The Good, The Bad and the Ugly](https://rateyourmusic.com/release/album/the-good-the-bad-and-the-ugly/the-good-the-bad-and-the-ugly/) - [ultralite_fish](https://twitter.com/ultralite_fish)
