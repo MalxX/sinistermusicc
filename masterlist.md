@@ -79,7 +79,7 @@
 
 [Concert by The Sea (LIVE) - Errol Garner](https://rateyourmusic.com/release/album/erroll-garner/concert-by-the-sea/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)
 
-## [(05/09/22)](https://twitter.com/sinistermusicc/status/1523131439746744320)
+## [(05/07/22)](https://twitter.com/sinistermusicc/status/1523131439746744320)
 
 **Albums requested:**
 
