@@ -89,7 +89,7 @@
 
 [(S/T) - The Good, The Bad and the Ugly](https://rateyourmusic.com/release/album/the-good-the-bad-and-the-ugly/the-good-the-bad-and-the-ugly/) - [ultralite_fish](https://twitter.com/ultralite_fish)
 
-## [(05/16/22)](https://twitter.com/sinistermusicc/status/1525668889899802624)
+## [(05/14/22)](https://twitter.com/sinistermusicc/status/1525668889899802624)
 
 **Albums requested:**
 
