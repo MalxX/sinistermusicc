@@ -83,11 +83,11 @@
 
 **Albums requested:**
 
-[Bocanada - Gustavo Cerati](https://rateyourmusic.com/release/album/gustavo-cerati/bocanada/) - [@simpunion](https://twitter.com/simpunion)
+~~*[Bocanada - Gustavo Cerati](https://rateyourmusic.com/release/album/gustavo-cerati/bocanada/) - [@simpunion](https://twitter.com/simpunion)*~~
 
-[Crooked Rain, Crooked Rain - Pavement](https://rateyourmusic.com/release/album/pavement/crooked_rain__crooked_rain/) - [@sakiv6601](https://twitter.com/sakiv6601)
+~~[Crooked Rain, Crooked Rain - Pavement](https://rateyourmusic.com/release/album/pavement/crooked_rain__crooked_rain/) - [@sakiv6601](https://twitter.com/sakiv6601)~~
 
-[(S/T) - The Good, The Bad and the Ugly](https://rateyourmusic.com/release/album/the-good-the-bad-and-the-ugly/the-good-the-bad-and-the-ugly/) - [ultralite_fish](https://twitter.com/ultralite_fish)
+~~[(S/T) - The Good, The Bad and the Ugly](https://rateyourmusic.com/release/album/the-good-the-bad-and-the-ugly/the-good-the-bad-and-the-ugly/) - [ultralite_fish](https://twitter.com/ultralite_fish)~~
 
 ## [(05/14/22)](https://twitter.com/sinistermusicc/status/1525668889899802624)
 
