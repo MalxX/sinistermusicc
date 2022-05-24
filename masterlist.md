@@ -100,3 +100,15 @@
 [The Whole Experience - The Half & Half Experience](placeholder-because-i-can't-locate-this-album-for-the-life-of-me.gov) - [@ariHHT](https://twitter.com/ariHHT)
 
 [Baw Baw Black Sheep - Rejjie Snow](https://rateyourmusic.com/release/album/rejjie-snow/baw-baw-black-sheep/) - [@KanyesEuphemism](https://twitter.com/KanyesEuphemism)
+
+## [(05/21/22)]
+
+**Albums requested:**
+
+[Cobra and Phases Group Play Voltage in the Milky Night - Stereolab](https://rateyourmusic.com/release/album/stereolab/cobra-and-phases-group-play-voltage-in-the-milky-night/) - [@pangaeaboyz](https://twitter.com/pangaeaboyz)
+
+[Surfer Rosa - Pixies](https://rateyourmusic.com/release/album/pixies/surfer-rosa/) - [@sakiv6601](https://twitter.com/sakiv6601)
+
+[Torn Asunder - Xiu Xiu](https://rateyourmusic.com/release/album/xiu-xiu/torn-asunder/) - [@ascending__fish](https://twitter.com/ascending__fish)
+
+[Born Like This - MF DOOM](https://rateyourmusic.com/release/album/doom/born-like-this/) - [@RGBweeb](https://twitter.com/RGBweeb)
