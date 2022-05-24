@@ -101,7 +101,7 @@
 
 [Baw Baw Black Sheep - Rejjie Snow](https://rateyourmusic.com/release/album/rejjie-snow/baw-baw-black-sheep/) - [@KanyesEuphemism](https://twitter.com/KanyesEuphemism)
 
-## [(05/21/22)]
+## [(05/21/22)](https://twitter.com/sinistermusicc/status/1528081737540153344?s=20&t=hI1Ujkj0oYA18VBYT5FP3g)
 
 **Albums requested:**
 
