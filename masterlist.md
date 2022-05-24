@@ -89,9 +89,9 @@
 
 ~~[(S/T) - The Good, The Bad and the Ugly](https://rateyourmusic.com/release/album/the-good-the-bad-and-the-ugly/the-good-the-bad-and-the-ugly/) - [ultralite_fish](https://twitter.com/ultralite_fish)~~
 
-~~## [(05/14/22)](https://twitter.com/sinistermusicc/status/1525668889899802624)~~
+## [(05/14/22)](https://twitter.com/sinistermusicc/status/1525668889899802624)
 
-~~**Albums requested:**~~
+**Albums requested:**
 
 ~~[Bee Thousand - Guided By Voices](https://rateyourmusic.com/release/album/guided-by-voices/bee-thousand/) - [@sakiv6601](https://twitter.com/sakiv6601)~~
 
