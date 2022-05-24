@@ -112,3 +112,5 @@
 [Torn Asunder - Xiu Xiu](https://rateyourmusic.com/release/album/xiu-xiu/torn-asunder/) - [@ascending__fish](https://twitter.com/ascending__fish)
 
 [Born Like This - MF DOOM](https://rateyourmusic.com/release/album/doom/born-like-this/) - [@RGBweeb](https://twitter.com/RGBweeb)
+
+[A Light for Attracting Attention - The Smile](https://rateyourmusic.com/release/album/the-smile/a-light-for-attracting-attention/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)
