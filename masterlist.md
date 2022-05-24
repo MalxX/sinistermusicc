@@ -89,17 +89,17 @@
 
 ~~[(S/T) - The Good, The Bad and the Ugly](https://rateyourmusic.com/release/album/the-good-the-bad-and-the-ugly/the-good-the-bad-and-the-ugly/) - [ultralite_fish](https://twitter.com/ultralite_fish)~~
 
-## [(05/14/22)](https://twitter.com/sinistermusicc/status/1525668889899802624)
+~~## [(05/14/22)](https://twitter.com/sinistermusicc/status/1525668889899802624)~~
 
-**Albums requested:**
+~~**Albums requested:**~~
 
-[Bee Thousand - Guided By Voices](https://rateyourmusic.com/release/album/guided-by-voices/bee-thousand/) - [@sakiv6601](https://twitter.com/sakiv6601)
+~~[Bee Thousand - Guided By Voices](https://rateyourmusic.com/release/album/guided-by-voices/bee-thousand/) - [@sakiv6601](https://twitter.com/sakiv6601)~~
 
-[Downfall of the Neon Youth - Parannoul, Asian Glow, sonhos tomam conta](https://rateyourmusic.com/release/album/%ED%8C%8C%EB%9E%80%EB%85%B8%EC%9D%84-asian-glow-sonhos-tomam-conta/downfall-of-the-neon-youth/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)
+~~[Downfall of the Neon Youth - Parannoul, Asian Glow, sonhos tomam conta](https://rateyourmusic.com/release/album/%ED%8C%8C%EB%9E%80%EB%85%B8%EC%9D%84-asian-glow-sonhos-tomam-conta/downfall-of-the-neon-youth/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)~~
 
-[The Whole Experience - The Half & Half Experience](placeholder-because-i-can't-locate-this-album-for-the-life-of-me.gov) - [@ariHHT](https://twitter.com/ariHHT)
+~~[The Whole Experience - The Half & Half Experience](placeholder-because-i-can't-locate-this-album-for-the-life-of-me.gov) - [@ariHHT](https://twitter.com/ariHHT)~~
 
-[Baw Baw Black Sheep - Rejjie Snow](https://rateyourmusic.com/release/album/rejjie-snow/baw-baw-black-sheep/) - [@KanyesEuphemism](https://twitter.com/KanyesEuphemism)
+~~[Baw Baw Black Sheep - Rejjie Snow](https://rateyourmusic.com/release/album/rejjie-snow/baw-baw-black-sheep/) - [@KanyesEuphemism](https://twitter.com/KanyesEuphemism)~~
 
 ## [(05/21/22)](https://twitter.com/sinistermusicc/status/1528081737540153344?s=20&t=hI1Ujkj0oYA18VBYT5FP3g)
 
@@ -113,4 +113,4 @@
 
 [Born Like This - MF DOOM](https://rateyourmusic.com/release/album/doom/born-like-this/) - [@RGBweeb](https://twitter.com/RGBweeb)
 
-[A Light for Attracting Attention - The Smile](https://rateyourmusic.com/release/album/the-smile/a-light-for-attracting-attention/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)
+*[A Light for Attracting Attention - The Smile](https://rateyourmusic.com/release/album/the-smile/a-light-for-attracting-attention/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)*
