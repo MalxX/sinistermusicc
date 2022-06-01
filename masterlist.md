@@ -105,13 +105,13 @@
 
 **Albums requested:**
 
-[Cobra and Phases Group Play Voltage in the Milky Night - Stereolab](https://rateyourmusic.com/release/album/stereolab/cobra-and-phases-group-play-voltage-in-the-milky-night/) - [@pangaeaboyz](https://twitter.com/pangaeaboyz)
+~~[Cobra and Phases Group Play Voltage in the Milky Night - Stereolab](https://rateyourmusic.com/release/album/stereolab/cobra-and-phases-group-play-voltage-in-the-milky-night/) - [@pangaeaboyz](https://twitter.com/pangaeaboyz)~~
 
-[Surfer Rosa - Pixies](https://rateyourmusic.com/release/album/pixies/surfer-rosa/) - [@sakiv6601](https://twitter.com/sakiv6601)
+~~[Surfer Rosa - Pixies](https://rateyourmusic.com/release/album/pixies/surfer-rosa/) - [@sakiv6601](https://twitter.com/sakiv6601)~~
 
-[Torn Asunder - Xiu Xiu](https://rateyourmusic.com/release/album/xiu-xiu/torn-asunder/) - [@ascending__fish](https://twitter.com/ascending__fish)
+~~[Torn Asunder - Xiu Xiu](https://rateyourmusic.com/release/album/xiu-xiu/torn-asunder/) - [@ascending__fish](https://twitter.com/ascending__fish)~~
 
-[Born Like This - MF DOOM](https://rateyourmusic.com/release/album/doom/born-like-this/) - [@RGBweeb](https://twitter.com/RGBweeb)
+~~[Born Like This - MF DOOM](https://rateyourmusic.com/release/album/doom/born-like-this/) - [@RGBweeb](https://twitter.com/RGBweeb)~~
 
 *[A Light for Attracting Attention - The Smile](https://rateyourmusic.com/release/album/the-smile/a-light-for-attracting-attention/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)*
 
@@ -121,6 +121,6 @@
 
 [Meditations - John Coltrane](https://rateyourmusic.com/release/album/john-coltrane/meditations/) - [@pangaeaboyz](https://twitter.com/pangaeaboyz)
 
-[S/T - Queens of the Stone Age](https://rateyourmusic.com/release/album/queens-of-the-stone-age/queens-of-the-stone-age/) - [@sakiv6601](https://twitter.com/sakiv6601)
+*[S/T - Queens of the Stone Age](https://rateyourmusic.com/release/album/queens-of-the-stone-age/queens-of-the-stone-age/) - [@sakiv6601](https://twitter.com/sakiv6601)*
 
 [Mathew Lee Cothran - Condemned to Die in a Carolina Motel Bar](https://rateyourmusic.com/release/album/mathew-lee-cothran/condemned-to-die-in-a-carolina-motel-bar/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)
