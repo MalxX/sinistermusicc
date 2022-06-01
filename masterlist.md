@@ -114,3 +114,13 @@
 [Born Like This - MF DOOM](https://rateyourmusic.com/release/album/doom/born-like-this/) - [@RGBweeb](https://twitter.com/RGBweeb)
 
 *[A Light for Attracting Attention - The Smile](https://rateyourmusic.com/release/album/the-smile/a-light-for-attracting-attention/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)*
+
+## [(05/28/22)](https://twitter.com/sinistermusicc/status/1530732984474673152)
+
+**Albums requested:**
+
+[Meditations - John Coltrane](https://rateyourmusic.com/release/album/john-coltrane/meditations/) - [@pangaeaboyz](https://twitter.com/pangaeaboyz)
+
+[S/T - Queens of the Stone Age](https://rateyourmusic.com/release/album/queens-of-the-stone-age/queens-of-the-stone-age/) - [@sakiv6601](https://twitter.com/sakiv6601)
+
+[Mathew Lee Cothran - Condemned to Die in a Carolina Motel Bar](https://rateyourmusic.com/release/album/mathew-lee-cothran/condemned-to-die-in-a-carolina-motel-bar/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)
