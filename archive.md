@@ -97,3 +97,13 @@
 
 #### Week 32:
 [Bridge Over Troubled Water - Simon and Garfunkel](https://rateyourmusic.com/release/album/simon-and-garfunkel/bridge-over-troubled-water/) ([spotify](https://open.spotify.com/album/0JwHz5SSvpYWuuCNbtYZoV?si=3z2x-eteSo2IG7wfCqJBbA)) ([discussion thread](TBA))
+
+#### Week 33:
+[Bocanada - Gustavo Cerati](https://rateyourmusic.com/release/album/gustavo-cerati/bocanada/) ([spotify](https://open.spotify.com/album/2rIdWbXPjcq8K7BCccBhhC?si=_zt0PzzBRo-2To0_7UDr2A)) ([discussion thread](TBA))
+
+#### Week 34:
+[A Light for Attracting Attention - The Smile](https://rateyourmusic.com/release/album/the-smile/a-light-for-attracting-attention/) ([spotify](https://open.spotify.com/album/009EjjwUjtdjvH7UP0wHzi?si=LtXlNe6IRmK-OcIOtXNpPg)) ([discussion thread](TBA))
+
+#### Week 35:
+[Queens of the Stone Age - Queens of the Stone Age](https://rateyourmusic.com/release/album/queens-of-the-stone-age/queens-of-the-stone-age/) ([spotify](https://open.spotify.com/album/0PSTqZ8cInMb1Wr68Uqdwp?si=VQfSpMDdSYO6HZE30_Q7xQ)) ([discussion thread](TBA))
+
