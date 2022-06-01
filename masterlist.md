@@ -113,7 +113,7 @@
 
 ~~[Born Like This - MF DOOM](https://rateyourmusic.com/release/album/doom/born-like-this/) - [@RGBweeb](https://twitter.com/RGBweeb)~~
 
-*[A Light for Attracting Attention - The Smile](https://rateyourmusic.com/release/album/the-smile/a-light-for-attracting-attention/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)*
+~~*[A Light for Attracting Attention - The Smile](https://rateyourmusic.com/release/album/the-smile/a-light-for-attracting-attention/) - [@smnsinistertoit](https://twitter.com/smnsinistertoit)*~~
 
 ## [(05/28/22)](https://twitter.com/sinistermusicc/status/1530732984474673152)
 
